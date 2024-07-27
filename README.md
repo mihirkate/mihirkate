@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **work.mihirkate@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/18967g0pLh76kZaiOUIyD-ZORP5b1uhRZ?usp=sharing](https://drive.google.com/drive/folders/18967g0pLh76kZaiOUIyD-ZORP5b1uhRZ?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1NjLK57JRZmc2EmtjzvtKuF9miy1h_5FY/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
